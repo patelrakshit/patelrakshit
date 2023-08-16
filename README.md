@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **NodeJs, Cybersecurity**
 
-- 📫 How to reach me **rakdhitpatel84@gmail.com**
+- 📫 How to reach me **rakshitpatel84@yahoo.com**
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/18CIkUWCjGjTPcZd7lplZlpscsscw_bcex-JXQlH6ulU/edit?usp=sharing](https://docs.google.com/document/d/18CIkUWCjGjTPcZd7lplZlpscsscw_bcex-JXQlH6ulU/edit?usp=sharing)
 
